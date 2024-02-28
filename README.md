@@ -20,8 +20,8 @@ El tambien porque me a demostrado que la disciplina y saber donde uno esta parad
 
 <sub>En Efecto es cine :monocle_face::wine_glass:</sub> 
 ### Puedes Ver mas informacion es la siguientes paginas:
-[Wiki de Hora de Aventura](https://horadeaventura.fandom.com/es/wiki/Lista_de_Episodios_de_Hora_de_Aventura).
-[Rasones para verla](https://hipertextual.com/2018/09/hora-aventura-importancia).
+- [Wiki de Hora de Aventura](https://horadeaventura.fandom.com/es/wiki/Lista_de_Episodios_de_Hora_de_Aventura).
+- [Rasones para verla](https://hipertextual.com/2018/09/hora-aventura-importancia).
 
 
  
