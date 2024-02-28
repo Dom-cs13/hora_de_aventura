@@ -15,6 +15,7 @@ tambien es de un caracter fuerte donde no cualquiera lo quiebra emocional mente
 ![Jake el perro](https://i.pinimg.com/564x/a2/51/c1/a251c17ebbc2956cb48246a6d6258f01.jpg)
 - **Fin el Humano**
 El tambien porque me a demostrado que la disciplina y saber donde uno esta parado lo lleva a hacer grandes cosas a pesar de las sircuntancias y cunado uno quiere que le salga bien algo es mas probable que salga mal 
+
 ![Fin el Humano](https://external-preview.redd.it/cmY9QZFhDKfoNrnlfvFz6g56kcSbvn4QeDTkqyk0Pyc.jpg?auto=webp&s=abc203acbbff160f0d649e4b99a4d45c15a752cb)
 
 <sub>En Efecto es cine :monocle_face::wine_glass:</sub> 
