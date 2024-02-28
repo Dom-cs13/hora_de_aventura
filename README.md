@@ -9,14 +9,13 @@ En un mundo donde se suceden las crisis, la vida cotidiana es frenética y los e
 
 El estoicismo se fija especialmente en las emociones:hurtrealbad:, a las que se refiere como pasiones, y que divide en buenas, malas e indiferentes. Las buenas hay que potenciarlas, las indiferentes obviarlas y hay que lidiar con las malas. La reflexión que hace el estoicismo al respecto es que a las personas no las perturban las cosas que pasan sino las opiniones que tienen sobre esas cosas que pasan.
 ## Mis personajes Favoritos
-**Jake el perro**
+- **Jake el perro**
 El es mi favorito porque es protector y vive en paz con todo el mundo es gracioso y carismatico 
 tambien es de un caracter fuerte donde no cualquiera lo quiebra emocional mente 
 ![Jake el perro](https://i.pinimg.com/564x/a2/51/c1/a251c17ebbc2956cb48246a6d6258f01.jpg)
-
-
-
-
+- **Fin el Humano**
+El tambien porque me a demostrado que la disciplina y saber donde uno esta parado lo lleva a hacer grandes cosas a pesar de las sircuntancias y cunado uno quiere que le salga bien algo es mas probable que salga mal 
+![Fin el Humano](https://external-preview.redd.it/cmY9QZFhDKfoNrnlfvFz6g56kcSbvn4QeDTkqyk0Pyc.jpg?auto=webp&s=abc203acbbff160f0d649e4b99a4d45c15a752cb)
 
 <sub>En Efecto es cine :monocle_face::wine_glass:</sub> 
 ### Puedes Ver mas informacion es la siguientes paginas:
